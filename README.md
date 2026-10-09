@@ -68,3 +68,9 @@ Status: Initial Development
 Future Plan: Expand the assistant's features through subsequent versions.  
 # kaynakça :
   meslel.meb.gov.tr
+
+
+
+ı dont wanna go there :(((( ım real 11 ım the best eleven eleven tam bir lider
+ım secend best lazerusman and one guy named doruk isnt lazerus
+doruk gahpe 
